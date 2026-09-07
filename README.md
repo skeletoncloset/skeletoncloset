@@ -3,5 +3,6 @@
 
 𓏴𓏴 ͜͝𓈒  links wip 
 
+> https://crystxlgems.straw.page
 
-https://joycebyers.atabook.org/
+> https://joycebyers.atabook.org/ 
