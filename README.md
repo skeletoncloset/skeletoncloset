@@ -5,4 +5,8 @@
 
 > https://crystxlgems.straw.page
 
-> https://joycebyers.atabook.org/ 
+> https://joycebyers.atabook.org/
+
+-
+
+NOMINATES! :D [pt-hall-of-media](https://github.com/pt-hall-of-media)
