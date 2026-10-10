@@ -9,4 +9,4 @@
 
 -
 
-NOMINATES! :D [pt-hall-of-media](https://github.com/pt-hall-of-media)
+:D [pt-hall-of-media](https://github.com/pt-hall-of-media)
