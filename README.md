@@ -1,5 +1,5 @@
 
-<img width="1200" height="1791" alt="IMG_9216" src="https://github.com/user-attachments/assets/ee143f8c-5376-4ff5-baf9-5e1efaacc29a" />
+<img width="540" height="250" alt="3B88E051-DACD-4F51-80BA-BB61F29568D4" src="https://github.com/user-attachments/assets/8ee7a7fc-403c-46c9-995c-84b989483c17" />
 
 𓏴𓏴 ͜͝𓈒  links wip 
 
