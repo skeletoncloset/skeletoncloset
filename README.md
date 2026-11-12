@@ -3,10 +3,10 @@
 
 𓏴𓏴 ͜͝𓈒  sp 9w8🐾 ⋮𓈒✚ i love my friends 💖 /p
 
-> https://crystxlgems.straw.page
+##### https://crystxlgems.straw.page
 
-> https://joycebyers.atabook.org/
+##### https://joycebyers.atabook.org/
 
 -
 
-:D [pt-hall-of-media](https://github.com/pt-hall-of-media)
+ :D [pt-hall-of-media](https://github.com/pt-hall-of-media)
